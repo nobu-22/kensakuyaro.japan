@@ -1,0 +1,1 @@
+# kensakuyaro.japan
